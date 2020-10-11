@@ -26,8 +26,8 @@ Dogs are energetic pets that need to let their energy out somehow. Most owners l
 
 ### Sources and More Information
 My source plus more benefits here: 
-https://www.akc.org/expert-advice/lifestyle/8-science-based-benefits-dog/
+[Link](https://www.akc.org/expert-advice/lifestyle/8-science-based-benefits-dog/)
 
 For more information on why dogs are called a man's best friend, check this source out:
-https://www.rover.com/blog/dogs-called-mans-best-friend/
+[Link](https://www.rover.com/blog/dogs-called-mans-best-friend/)
  
